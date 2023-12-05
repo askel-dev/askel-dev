@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **python**
 
-- 📫 How to reach me **cryptoler1@gmail.com**
+- 📫 How to reach me **askeldev@gmail.com**
 
 - ⚡ Fun fact **- I love space**
 
