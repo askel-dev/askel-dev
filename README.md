@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **cryptoler1@gmail.com**
 
-- ⚡ Fun fact **i love space**
+- ⚡ Fun fact **- I love space**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
